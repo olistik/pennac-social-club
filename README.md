@@ -21,3 +21,5 @@ Istruzioni:
 3. leggi ad alta voce :-)
 
 [Origine](https://twitter.com/olistik/status/775589798333542400)
+
+![I 10 Comandamenti di Pennac](https://raw.githubusercontent.com/olistik/pennac-social-club/master/I%2010%20comandamenti%20di%20Pennac.jpg)
